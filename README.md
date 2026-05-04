@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-SEGL890629MDFGRR00
+SEGL890629MDFGRR00
